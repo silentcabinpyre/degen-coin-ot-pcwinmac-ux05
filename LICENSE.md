@@ -1,4 +1,4 @@
-# 
+# Atualizado degen coin sniper bot modelos para Mac OS | Nativo degen coin sniper bot modelos para PC Windows. Com conversão de formatos e proteção contra front-running — otimizado para máximo desempeño en cada plataforma.
 
 
 
